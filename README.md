@@ -15,4 +15,5 @@ If you are looking for custom development solutions to meet your specific needs,
 Feel free to contact me on Discord: **__moijesuis2enmoi__** 
 to discuss your requirements and how I can assist you in realizing your projects. Together, we can infuse innovation into your content and provide a one-of-a-kind experience for your audience.
 
+## Contact Discord: moijesuis2enmoi
 ---
